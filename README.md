@@ -1,1 +1,2 @@
 Kenneth Tucker
+tuckkenn@oregonstate.edu
